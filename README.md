@@ -1,1 +1,1 @@
-# XSZ
+# BetterVera
